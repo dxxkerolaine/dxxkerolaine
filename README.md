@@ -9,7 +9,7 @@ meu nome é kerolaine
 ### voce entrar em contato comigo 📫
 
 alurastartestudante@email.com
-@alurastartestudante
 
+@alurastartestudante
 
 ![](https://tenor.com/pt-BR/view/flores-gif-3576046962999395136)
